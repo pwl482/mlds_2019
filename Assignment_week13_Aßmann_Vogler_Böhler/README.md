@@ -1,0 +1,1 @@
+## The complete folder for assignment 13 is Assignment_week13_CORRECTVERSION_Aßmann_Vogler_Böhler
